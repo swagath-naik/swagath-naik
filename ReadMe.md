@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Open Source Enthusiast | 💻 Developer<br><br>Passionate about open-source development and collaboration. I love contributing to projects, learning from the community, and building tools that make a difference.<br><br>🔹 Always exploring new technologies<br>🔹 Open to collaboration and discussions<br><br>Let's build something amazing together! 🚀<br>
+🚀 Open Source Enthusiast | 💻 Developer | 🤖 AI Enthusiast | 🔍 Tech Explorer<br><br>Passionate about open-source development, AI, and emerging technologies. I love contributing to projects, learning from the community, and building tools that make a difference. Always exploring new tools, automating tasks, and experimenting with new ideas.<br><br>🔹 Passionate about AI, automation, and open-source tech<br>🔹 Constantly learning, building, and experimenting<br>🔹 Open to collaborations and discussions<br><br>Let’s create something amazing! 🤖
 
 
 ## 🌐 Socials:
